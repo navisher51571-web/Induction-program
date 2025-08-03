@@ -6,10 +6,10 @@ _First Day Timming was 8:30am_
 *The first day start with prayers at gurudwara sahib,there was shabad kirtan at gurudwara sahib for student new beginning arranged by the GNDEC (8:30am to 9:30am)*
 *After the kirtan, there was the arrangement of morning snacks at boys Hostal (9:30am to 10:00am)
 
-_Auditorium visit_
+### Auditorium visit
 *The Induction programme was started in auditorium (10:00am). there was many great personalities was arrived for induction programme*
 
-_Induction programme guests_
+### nduction programme guests
 
 _*Dr. Sehijpal singh(principal sir GNDEC)_
 
