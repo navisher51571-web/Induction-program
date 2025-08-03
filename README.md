@@ -17,7 +17,7 @@ First Day Timming was 8:30am
 
 *Second chief guest of honour was Shri Ravinder garg(chief Er. at Municipal corporation)
 
-*Induction programme is very usefull for us because, Principal sir,HOD mam,and the chief guests was guid us with valuable word and this is very inspiring for our engineering journey.The Induction programme ends with thoughtful word  and inspiration (at 4:00pm).*
+*Induction programme is very usefull for us because, Principal sir,HOD mam,and the chief guests was guid us with valuable word and this is very inspiring for our engineering journey.The Induction programme ends with thoughtful word  and inspiration (at 3:30pm).*
 
 # DAY 2 (1 AUGUST 2025)
 
@@ -28,7 +28,14 @@ The Proficiency test of English is start at 9:30am and end at 10:20am and the Pr
 ### Auditorium visit day 2
 *The induction programme is started with getting information about Satya scholarship given by Buddy4study foundation.*
 
-Then,There was expert lecture given by    Dr. Arashdeep Singh.It is the lecture of wellness of people about healthy food and ends with important information given by Arashdeep sir.
+Then,There was expert lecture given by    Dr. Arashdeep Singh.It is the lecture of wellness of people about healthy food and ends with important information given by Arashdeep sir.This is All about the second day of induction eads at 4:00pm. 
+
+# Day 3 (2 August 2025)
+Third day timming is 9:00am at Auditorium 
+### Auditorium visit day 3
+The Third day is start with expert lecture by Dr. Jaswinder Singh (incharge IAPT). He is one of the greatest personality in Punjab. He has very understanding about science and mathematics. He guid us and give information about science and do many experiments as an example in Auditorium.
+
+The second expert lecture given by Dr.Priya Darshni mam about universal human value. she is an angel for us because, she gives tips for life long happiness and prosperity. it is the valuable thought about our life session. It 8s one of the best lecture in our induction at GNDEC. She also give us an assignment about efforts and time management.
 
 
 
