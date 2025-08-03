@@ -17,4 +17,6 @@ _*First chief guest of honour was Er. Rakesh kumar ji ( ATC Ludhiana)_
 
 _*Second chief guest of honour was Shri Ravinder garg(chief Er. at Municipal corporation)_
 
+there was very 
+
 
