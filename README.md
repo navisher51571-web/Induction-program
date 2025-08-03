@@ -1,4 +1,4 @@
-# Day 1 (31 july 2015)
+# Day 1 (31 july 2025)
 _First Day Timming was 8:30am_
 
 _Gurudwara sahib_
@@ -10,7 +10,7 @@ _Auditorium visit_
 *The Induction programme was started in auditorium (10:00am). there was many great personalities was arrived*
 _Induction programme guest_
 
-_ Dr. Sehijpal singh(principal sir GNDE)_
+_Dr. Sehijpal singh(principal sir GNDEC)_
 
 _First chief guest of honour was Er. Rakesh kumar ji ( ATC Ludhiana)_
 
