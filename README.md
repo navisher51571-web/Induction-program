@@ -17,7 +17,8 @@ First Day Timming was 8:30am
 
 *Second chief guest of honour was Shri Ravinder garg(chief Er. at Municipal corporation)
 
-*Induction programme is very usefull for us because, Principal sir,HOD mam,and the chief guests was guid us with valuable word and this is very inspiring for our engineering journey.The Induction programme ends with thoughtful word  and inspiration (at 3:30pm).*
+*Induction programme is very usefull for us because, Principal sir,HOD mam,and the chief guests was guid us with valuable word and this is very inspiring for our engineering journey.The Induction programme ends with thoughtful word  and inspiration (at 3:30pm).*Here's the link to the file:
+https://in.docworkspace.com/d/sIN_F6ae6AsqgvsQG
 
 # DAY 2 (1 AUGUST 2025)
 
