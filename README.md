@@ -11,10 +11,10 @@ _Auditorium visit_
 
 _Induction programme guests_
 
-_Dr. Sehijpal singh(principal sir GNDEC)_
+_*Dr. Sehijpal singh(principal sir GNDEC)_
 
-_First chief guest of honour was Er. Rakesh kumar ji ( ATC Ludhiana)_
+_*First chief guest of honour was Er. Rakesh kumar ji ( ATC Ludhiana)_
 
-_Second chief guest of honour was Shri Ravinder garg(chief Er. at Municipal corporation)_
+_*Second chief guest of honour was Shri Ravinder garg(chief Er. at Municipal corporation)_
 
 
