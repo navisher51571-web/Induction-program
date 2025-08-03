@@ -28,7 +28,7 @@ The Proficiency test of English is start at 9:30am and end at 10:20am and the Pr
 ### Auditorium visit day 2
 *The induction programme is started with getting information about Satya scholarship given by Buddy4study foundation.*
 
-Then,There was expert lecture given by    Dr. Arashdeep Singh.It is the lecture of wellness of people about healthy food and ends with important information given by Arashdeep sir.
+Then,There was expert lecture given by    Dr. Arashdeep Singh.It is the lecture of wellness of people about healthy food and ends with important information given by Arashdeep sir
 
 
 
