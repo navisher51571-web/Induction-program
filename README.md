@@ -1,5 +1,5 @@
 # Day 1 (31 july 2025)
-_First Day Timming was 8:30am_
+First Day Timming was 8:30am
 
 ### Gurudwara sahib
 
@@ -17,9 +17,14 @@ _First Day Timming was 8:30am_
 
 *Second chief guest of honour was Shri Ravinder garg(chief Er. at Municipal corporation)
 
-*Induction programme is very usefull for us because, Principal sir,HOD mam,and the chief guests was guid us with valuable word and this is very inspiring for our engineering journey.The Induction programme ends with thoughtful word of all and inspiration (at 4:00).*
+*Induction programme is very usefull for us because, Principal sir,HOD mam,and the chief guests was guid us with valuable word and this is very inspiring for our engineering journey.The Induction programme ends with thoughtful word  and inspiration (at 4:00pm).*
 
 # DAY 2 (1 AUGUST 2025)
+
+The day 2 timming was 9:00am
+### proficiency test
+The proficiency test held on day 2.we give proficiency tests of English and Mathematics.
+The Proficiency test of English is start at 9:30am and end at 10:20am and the Proficiency test of mathematics start at 10:30am to 11:00am ended.After gave the Proficiency test, we go to the canteen because there was break time (11:30am to 1:00am)
 
 
 
