@@ -37,7 +37,8 @@ Third day timming is 9:00am at Auditorium
 The Third day is start with expert lecture by Dr. Jaswinder Singh (incharge IAPT). He is one of the greatest personality in Punjab. He has very understanding about science and mathematics. He guid us and give information about science and do many experiments as an example in Auditorium.
 
 The second expert lecture given by Dr.Priya Darshni mam about universal human value. she is an angel for us because, she gives tips for life long happiness and prosperity. it is the valuable thought about our life session. It 8s one of the best lecture in our induction at GNDEC. She also give us an assignment about efforts and time management.
-
+Here's the link to the file:
+https://in.docworkspace.com/d/sIKbF6ae6AoOjvsQG
 
 
 
