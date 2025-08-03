@@ -7,8 +7,9 @@ _Gurudwara sahib_
 *After the kirtan, there was the arrangement of morning snacks at boys Hostal (9:30am to 10:00am)
 
 _Auditorium visit_
-*The Induction programme was started in auditorium (10:00am). there was many great personalities was arrived*
-_Induction programme guest_
+*The Induction programme was started in auditorium (10:00am). there was many great personalities was arrived for induction programme*
+
+_Induction programme guests_
 
 _Dr. Sehijpal singh(principal sir GNDEC)_
 
